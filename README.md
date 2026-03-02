@@ -8,17 +8,35 @@
 <img width="1536" height="310" alt="1" src="https://github.com/user-attachments/assets/61b22679-8920-48e3-89f9-c7f41e932a2b" />
 
 
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> Yap Yap
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> bout me: age 18+, introvert
 
-<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" /> Yap Yap
+<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" /> timezone: Central European Time (CET, UTC+1) during the winter and switches to Central European Summer Time (CEST, UTC+2)
+
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> fandoms: transformers, fnaf, cod, deadplate
+
+<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" /> likes: my friends, regis,  motorcycles, sport cars, aerospace/plane/jets
+
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> names i go by: Jet(fire), Breakdown, Lucid
+
+<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" /> dni: pro/darkshippers, -13, problematic ppl
+
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> places: pt docks and transformers corner, VERY sometimes at beach on ss1
 
 ![KuuQ4AAAAASUVORK5CYII](https://github.com/user-attachments/assets/357c7857-6548-4387-8f14-4ff6d841735c)
 
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/f39024dd-edd8-4b81-892e-a503770a6afd" /> Yap Yap
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c2d0a3e9-5f15-47d5-9a56-a201ff4e86ae" /> 
 
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c2d0a3e9-5f15-47d5-9a56-a201ff4e86ae" /> Yap Yap
+<p align="center">
+pony meanings:
+basically i use the pony as my mood, 
+  
+ <img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/f39024dd-edd8-4b81-892e-a503770a6afd" />  if i'm grumpy or not in the mood for wasting time on small talk n stuff: ratchet tfp
 
-<img width="1536" height="310" alt="1" src="https://github.com/user-attachments/assets/b34e5ae9-28af-4cc1-963a-07c79750791a" />
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c2d0a3e9-5f15-47d5-9a56-a201ff4e86ae" /> feeling sensitive or small i'll often be breakdown
+
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/f39024dd-edd8-4b81-892e-a503770a6afd" /> feeling confident: often knockout 
+
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c2d0a3e9-5f15-47d5-9a56-a201ff4e86ae" /> mainly use ratchet and breakdown!
 
 <img width="1280" height="129" alt="IMG_9081" src="https://github.com/user-attachments/assets/3199a45c-91d9-438f-9f53-7857f170ea0c" />
 
