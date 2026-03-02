@@ -7,34 +7,35 @@
 
 <img width="1536" height="310" alt="1" src="https://github.com/user-attachments/assets/61b22679-8920-48e3-89f9-c7f41e932a2b" />
 
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> 18+   ⋮  intoverted 
 
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> bout me: age 18+, introvert
+⠀<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" />　　𐙚　　CET, UTC+1 in winter 　 CEST UTC+2 in summer　 ₊  ◞　
 
-<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" /> timezone: Central European Time (CET, UTC+1) during the winter and switches to Central European Summer Time (CEST, UTC+2)
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/f39024dd-edd8-4b81-892e-a503770a6afd" /> 　˙　　˳　　⁺　　transformers, fnaf, cod, deadplate, friends regis, Motorized Vehicles
 
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> fandoms: transformers, fnaf, cod, deadplate
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c2d0a3e9-5f15-47d5-9a56-a201ff4e86ae" /> ★ ‧ Jet(fire)　˙　Breakdown　˙　 Bee ᐟᐟ
 
-<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" /> likes: my friends, regis,  motorcycles, sport cars, aerospace/plane/jets
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" />where to find me: pt docks and transformers corner, ˚.୨୧˚
 
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> names i go by: Jet(fire), Breakdown, Lucid
+<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" />"'Do you still remember when we were little, and we were playing in the park..?' you asked me 'what happens when we die?'.."
+౨ৎ
 
-<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" /> dni: pro/darkshippers, -13, problematic ppl
-
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> places: pt docks and transformers corner, VERY sometimes at beach on ss1
-
-![KuuQ4AAAAASUVORK5CYII](https://github.com/user-attachments/assets/357c7857-6548-4387-8f14-4ff6d841735c)
+<img width="1536" height="310" alt="1" src="https://github.com/user-attachments/assets/61b22679-8920-48e3-89f9-c7f41e932a2b" />   
 
 <p align="center">
-pony meanings:
-basically i use the pony as my mood, 
-  
- <img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/f39024dd-edd8-4b81-892e-a503770a6afd" />  if i'm grumpy or not in the mood for wasting time on small talk n stuff: ratchet tfp
+𐐪　⠀ Pony  🩷    meaning 　🌸  
 
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c2d0a3e9-5f15-47d5-9a56-a201ff4e86ae" /> feeling sensitive or small i'll often be breakdown
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c2d0a3e9-5f15-47d5-9a56-a201ff4e86ae" /> ⠀　　𐙚　　ratchet 　 ₊  ◞　
+　˙　　˳　　⁺　　I'm moody/ grumpy, tired and overworked
 
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/f39024dd-edd8-4b81-892e-a503770a6afd" /> feeling confident: often knockout 
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c5062d24-4aed-449f-bd99-f4e37450f355" /> 𐙚　　Breakdown　 ₊  ◞
+　˙　　˳　　⁺　　i'm sensitive and or semiverbal
 
-<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c2d0a3e9-5f15-47d5-9a56-a201ff4e86ae" /> mainly use ratchet and breakdown!
+⠀<img width="100" height="200" alt="1" src="https://github.com/user-attachments/assets/742168d0-841d-4a3b-8ef2-de358b3bfa88" />   @  most often used﹒  ratchet / breakdown  ࿐࿔
+              
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/f39024dd-edd8-4b81-892e-a503770a6afd" />   "i said 'you forget everything' 'everything? even you?' you asked.. 'yes, even me'.."        ✦
+
+![KuuQ4AAAAASUVORK5CYII](https://github.com/user-attachments/assets/357c7857-6548-4387-8f14-4ff6d841735c)
 
 <img width="1280" height="129" alt="IMG_9081" src="https://github.com/user-attachments/assets/3199a45c-91d9-438f-9f53-7857f170ea0c" />
 
