@@ -41,3 +41,8 @@ basically i use the pony as my mood,
 ![6c8f522cdde1972a26ac870477d139be](https://github.com/user-attachments/assets/9fd956b0-030e-4fad-9600-c56760b10d3a)
 
 ![image-removebg-preview_6](https://github.com/user-attachments/assets/4efa336a-84fb-4d06-9423-61db53ebf91d)
+
+______
+
+<p align="center">
+THIS REPOSITORY WAS MADE BY @PinkiePieExplosion!
