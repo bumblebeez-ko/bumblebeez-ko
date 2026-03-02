@@ -35,6 +35,8 @@
               
 <img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/f39024dd-edd8-4b81-892e-a503770a6afd" />   "i said 'you forget everything' 'everything? even you?' you asked.. 'yes, even me'.."        ✦
 
+<img width="100" height="100" alt="1" src="https://github.com/user-attachments/assets/c2d0a3e9-5f15-47d5-9a56-a201ff4e86ae" /> ⠀   ⋆౨ৎ˚⟡˖ ࣪ I didn't return to save a life, only to lose the one I care most about.. . .ᐟ
+
 ![KuuQ4AAAAASUVORK5CYII](https://github.com/user-attachments/assets/357c7857-6548-4387-8f14-4ff6d841735c)
 
 <img width="1280" height="129" alt="IMG_9081" src="https://github.com/user-attachments/assets/3199a45c-91d9-438f-9f53-7857f170ea0c" />
